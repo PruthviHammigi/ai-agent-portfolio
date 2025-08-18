@@ -383,4 +383,4 @@ Ready to transform your workflow with intelligent AI agents? I specialize in cre
 - **Content generation and analysis tools**
 - **Business process optimization**
 
-[📬 Contact me](mailto:contact@aiagentportfolio.com) or [Connect on LinkedIn](https://www.linkedin.com/in/your-profile)
+[📬 Contact me](mailto:pruthvi.hammigi@gmail.com) or [Connect on LinkedIn](https://www.linkedin.com/in/pruthvi-hammigi/)
